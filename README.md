@@ -18,7 +18,7 @@
 ## 🕺 [준팍](https://github.com/junpakPark)
 ## 👩🏻‍🏫 [이레](https://github.com/zillionme)
 ## 🦊 [여우](https://github.com/BackFoxx)
-## 🏋🏻‍♂️[재이](https://github.com/sosow0212)
+## 🏋🏻‍♂️[제이](https://github.com/sosow0212)
 
 
 <br><br><br>
